@@ -1,0 +1,2 @@
+# nyambek
+Ingin sukses
